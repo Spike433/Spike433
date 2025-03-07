@@ -10,8 +10,6 @@
 
 #### **Gym bro** during working hours
 
-<br/>
-
 #### Remember 
 > _"Behind every fortune, there’s a crime."_ 
 
