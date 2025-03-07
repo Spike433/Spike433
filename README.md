@@ -1,16 +1,14 @@
-## Hi there 👋
+## Dear Visitor  
 
-<!--
-**Spike433/Spike433** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I'm available for hire this winter ❄️  
 
-Here are some ideas to get you started:
+- **B2B Contracts**  
+- **Web & Mobile Development, Home/Industry Automation**  
+- [qoretech.eu](#)  
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Passionate about **Surfing** 🌊 and **Fitness** 💪  
+- Check out more: [Instagram @yoyo.rent](https://www.instagram.com/yoyo.rent/)  
+
+> _"Behind every fortune, there’s a crime."_ 😏  
+
+![6](https://github.com/user-attachments/assets/25b1f366-2c43-4303-903c-5dcc4292d29e)
