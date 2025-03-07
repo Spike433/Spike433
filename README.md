@@ -3,10 +3,14 @@
 I'm available for hire during winter ❄️
 - **B2B Contracts**  
 - **Web & Mobile Development, Home/Industry Automation**  
-- [qoretech.eu](#)  
+- Check out my company [qoretech.eu](#)  
 
-Passionate about **Surfing** and **Fitness**  
+**Surfer** in summer
 - Check out more: [Instagram @yoyo.rent](https://www.instagram.com/yoyo.rent/)  
+
+**Gym bro** during working hours
+
+<br/>
 
 > _"Behind every fortune, there’s a crime."_ 
 
