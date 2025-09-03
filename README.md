@@ -6,7 +6,6 @@
 - Check out my company [qoretech.eu](#)  
 
 #### Passionate about surfing
-- Check out my side business: [Instagram @yoyo.rent](https://www.instagram.com/yoyo.rent/)  
 
 #### **Gym bro** during working hours
 
