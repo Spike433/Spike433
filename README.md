@@ -3,7 +3,7 @@
 #### I'm available for hire during winter ❄️
 - **B2B Contracts**  
 - **Web & Mobile Development, Home/Industry Automation**  
-- Check out my company [qoretech.eu](#)  
+- Check out my company [qoretech.eu](#https://qoretech.eu/)  
 
 #### Passionate about surfing
 
