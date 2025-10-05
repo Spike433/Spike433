@@ -1,6 +1,6 @@
 ## Dear Visitor  
 
-#### I'm available for hire during winter ❄️
+#### I'm available for hire
 - **B2B Contracts**  
 - **Web & Mobile Development, Home/Industry Automation**  
 - Check out my company [QoreTech](https://qoretech.eu/)  
